@@ -7,6 +7,7 @@
 - [厌女](Misogyny.md)
 - [女性主义有什么用？](What_Would_de_Beauvoir_Do.md)
 - [如何正确吵架](The_heart_of_fight.md)
+- [论文艺女青年如何培养女王气场](How_to_cultivate_the_queens_aura.md)
 
 
 ### 小说
